@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DevWinterV
+- 👋
 - 🌱 I’m currently learning An Giang University
 - 📞 +84 766837068
 - 📫 chauvanrangdong4440@gmail.com
